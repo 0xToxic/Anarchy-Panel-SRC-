@@ -2,6 +2,8 @@
 
 ![image](https://i.imgur.com/sX6pzdU.png)
 
+![video](https://streamable.com/gbv70k)
+
 
 |[Download]()
 |:------------- |
